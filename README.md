@@ -1,1 +1,0 @@
-Daft cunt with little skillsets created this, and used boilerplate information yawn
